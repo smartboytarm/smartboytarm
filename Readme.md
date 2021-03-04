@@ -1,4 +1,4 @@
-**Từ Bỏ**
+**Từ Bỏ** :sweat_drops:  
 (Tường Vân)
 
 Từ bỏ thói quen hay vội vàng  
